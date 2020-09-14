@@ -1,0 +1,2 @@
+# HOPE
+trans rights no
